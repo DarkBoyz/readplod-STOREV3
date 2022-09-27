@@ -16,7 +16,7 @@
 <p style="text-align: center;"><span style="color: #00ffff;"><strong>╞═══════ ༶ ❅ ༶ ═══════╡</strong></span></p>
 <p style="text-align: center;"><span style="color: #ff0000;"><b>SCRIPT NOT FOR SALE!</b></span></p></b>
 <p style="text-align: center;"><span style="color: #ff0000;"><b>NO RECODE</b></span></p>
-<p style="text-align: center;"><span style="color: #ff0000;"><b>NO BULLY THIS SCRIPT</b></span></p>
+<p style="text-align: center;"><span style="color: #ff0000;"><b>NO BULLY YOUR SCHOOL FRIEND SHIT!</b></span></p>
 <p style="text-align: center;"><span style="color: #ff0000;"><b>BOBA BOTZ AND WHEELSBOT-MD</b></span></p>
 <p style="text-align: center;"><span style="color: #00ffff;"><strong>╞═══════ ༶ ❅ ༶ ═══════╡</strong></span></p>
 </body>
